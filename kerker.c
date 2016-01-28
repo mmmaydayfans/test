@@ -1,4 +1,4 @@
-erkek
+kerkek
 rekr
 
 sdg
